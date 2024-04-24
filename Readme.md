@@ -1,0 +1,1 @@
+https://www.notion.so/Master-LangChain-Build-16-AI-Apps-OpenAI-LLAMA2-HuggingFace-7e11d97911f54e04888179831cbb98f7
